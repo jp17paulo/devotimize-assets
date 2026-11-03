@@ -1,0 +1,1 @@
+# devotimize-assets
